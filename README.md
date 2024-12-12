@@ -10,7 +10,7 @@
 
 # Contact
 
-😈 Contact me anytime. I'm always bored.
+😈 Contact me anytime.
 
 Twitter: https://twitter.com/rlarhsid
 
