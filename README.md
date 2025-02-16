@@ -4,16 +4,14 @@
 
 🎮 I usually play rhythm games. (Arcaea, Deemo, Cytus II, DJMAX RESPECT /V, etc...)
 
-🇰🇷 Live in Korea, UTC+9
+🇰🇷 Living in Korea, UTC+9
 
-😄 A silly ass developer who has little knowledge (Python, SQLite, JavaScript)
+😄 Silly ass developer who has little knowledge (Python, SQLite, JavaScript)
 
 # Contact
 
-😈 Contact me anytime.
+☝🏻 Twitter: https://twitter.com/rlarhsid
 
-Twitter: https://twitter.com/rlarhsid
+✌🏻 Discord: @rlarhsid
 
-Discord: @rlarhsid
-
-Instagram: https://www.instagram.com/rlarhsid/
+🖕🏻 Instagram: https://www.instagram.com/rlarhsid/
