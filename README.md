@@ -12,6 +12,6 @@
 
 ☝🏻 Twitter: https://twitter.com/rlarhsid
 
-✌🏻 Discord: @rlarhsid
+✌🏻 Discord: @creveld_
 
 🖕🏻 Instagram: https://www.instagram.com/rlarhsid/
