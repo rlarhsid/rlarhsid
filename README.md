@@ -6,7 +6,7 @@
 
 🇰🇷 Living in Korea, UTC+9
 
-😄 Silly ass developer who has little knowledge (Python, JavaScript)
+😄 Silly ass designer who knows a bit of Python, JavaScript
 
 # Contact
 
